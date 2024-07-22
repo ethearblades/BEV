@@ -1,10 +1,17 @@
-# ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♱ ⁞ RENTRY 🦋 LINKS!!
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ
- ![](https://files.catbox.moe/m0917n.jpg)  
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤ  ㅤ  BEV 𓂃 READ! 🪽  
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤㅤhttps://rentry.co/cutiecutiee 
- https://retrospring.net/@yatogamifuma
+# 
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ♡⸝⸝ 𓂃 XE ⨾ HE・┆ FR + ENG
+<p align="center">
+RENTRY N LINKS <img src="https://files.catbox.moe/ex4nt0.gif"
+</p>
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤPLEASE CHECK THEM OUT!! ^_^
+
+<p align="center">
+<img src="https://files.catbox.moe/peresn.png" alt="" class="center">
+</p>
+
+<p align="center">
+<a href="https://rentry.co/cutiecutiee">RENTRY!!</a> & <a href="https://retrospring.net/@yatogamifuma">RETROSPRING!!</a>
+</p>
+<p align="center">
+<img src="https://files.catbox.moe/h7dxu8.png" alt="" class="center">
+</p>
